@@ -2,3 +2,4 @@
 
 Now Shine.
 
+[Official Kevin Gates Website](https://www.kvngates.com)
