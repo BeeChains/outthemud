@@ -1,6 +1,5 @@
-# OUT THE MUD Domain Welcomes You!!
+# ORGANIC Grown, OUT THE MUD Domain Welcomes You!!
 
-Now Shine.
+Now Shine On!
 
-- [BWA.OUTTHEMUD/](http://bwa.outthemud/)
-- [Official Kevin Gates Website](https://www.kvngates.com)
+[ii.c/](http://ii.c.hns.to/)
