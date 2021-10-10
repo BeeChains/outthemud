@@ -7,4 +7,4 @@ Now Shine On!
 - [IINC/](http://dlink.iinc.hns.to/)
 - [Inner I Net Company/](http://shapereality.innerinetcompany.hns.to/)
 - [d🕸/](http://xn--d-rn3s.hns.to/) 
-- [Roots Of The Internet/](http://rootoftheinternet.hns.to/)
+- [Root Of The Internet/](http://rootoftheinternet.hns.to/)
