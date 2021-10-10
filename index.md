@@ -1,4 +1,4 @@
-# ORGANIC Grown, OUT THE MUD Domain Welcomes You!!
+# ORGANIC Grown, OUT THE MUD/ Domain Welcomes You!!
 
 Now Shine On!
 
