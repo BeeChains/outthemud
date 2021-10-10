@@ -1,2 +1,2 @@
-# outthemud
-OUT THE MUD domain!
+# outthemud/
+OUT THE MUD top level domain!
